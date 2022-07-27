@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @ContentCoder1
+- 👀 I’m interested in media content and learning how to code, only a new to this so il keep it short and sweet
+- i will be learning everything associated with computer science but primarly aim to learn front end web development 
+- with Python being the first language i plan to take on. 
+- i also intend to learn excel and SQL as both of these will aid me in my current job which is an adminstrational based role. 
+- and in my spare time is where i will begin my journey in content creation specially games, but also photography as well as a little side hustle 
+- plenty to do so drop me a message if you feel the need. will get back to you ASAP 
+- cheers 
